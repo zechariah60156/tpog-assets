@@ -8,7 +8,7 @@ These Bibles are legally shareable and reshareable for non-commercial purposes. 
 
 Please see the copyright statement on each Bible for more information.
 
-These files are provided as-is and without warranty.
+These files are provided as-is and without warranty
 
 
 Index of Bibles Included: 
